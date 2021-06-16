@@ -1,0 +1,7 @@
+# TE_participacion_15-06-2021
+
+Participacion 15 de Junio
+
+TEGNOLOGIAS EMERGENTES
+
+JORGE LUIS FLORES SILVA
